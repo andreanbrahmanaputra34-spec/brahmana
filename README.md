@@ -1,0 +1,2 @@
+# brahmana
+tentang diri sendiri
